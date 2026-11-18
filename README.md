@@ -1,2 +1,58 @@
-# SIFONIX-STORE
+# SIFONIX-STORESIFONIX-STORE
+Mobile Accessories Shop
+
+Welcome to SIFONIX-STORE
+আপনার পছন্দের মোবাইল অ্যাকসেসরিজ এখন এক জায়গায়।
+
+সারা বাংলাদেশে ডেলিভারি।
+
+Order Now
+আমাদের পণ্য
+🔌
+Mobile Charger
+12W / 18W / 25W / 35W
+
+দাম জানতে যোগাযোগ করুন
+
+Order Now
+🔗
+Data Cable
+Type-C / Micro USB
+
+দাম জানতে যোগাযোগ করুন
+
+Order Now
+🎧
+Earbuds
+Wireless Earbuds
+
+দাম জানতে যোগাযোগ করুন
+
+Order Now
+🔋
+Power Bank
+Mobile Power Bank
+
+দাম জানতে যোগাযোগ করুন
+
+Order Now
+🎵
+Headphone
+Mobile Headphone
+
+দাম জানতে যোগাযোগ করুন
+
+Order Now
+⚡
+Button Phone Charger
+Button Mobile Charger
+
+দাম জানতে যোগাযোগ করুন
+
+Order Now
+অর্ডার করতে যোগাযোগ করুন
+সারা বাংলাদেশে ডেলিভারি
+
+WhatsApp Order
+© 2026 SIFONIX-STORE
 Online Store for Mobile Chargers, Cables, Earbuds and Accessories
